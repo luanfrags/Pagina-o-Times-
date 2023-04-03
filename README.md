@@ -1,1 +1,1 @@
-# Pagina-o-Times-
+# Paginação Times-
